@@ -1,3 +1,4 @@
 <img src=https://cdn.phototourl.com/free/2026-09-10-50202e1c-a537-4937-afcb-a4b224b9e92d.png alt="Alt Text" width="700">
 
-``` rinurunrurnrurnrunrinrurnrirnurnrirnrunrirnurrinurinu```⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+ 
+<div align="center"> ``` tuffest rinu```⠀⠀⠀⠀</div>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
